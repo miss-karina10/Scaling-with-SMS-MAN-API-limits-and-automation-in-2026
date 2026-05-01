@@ -1,0 +1,1 @@
+# Scaling-with-SMS-MAN-API-limits-and-automation-in-2026
